@@ -17,6 +17,8 @@
 
   (and <ins>if you are my friend or peer</ins> looking for collaboration on any personal project or independent development or creating/making some innovative stuff not related to job, then you can contact me on my personal/unofficial email ID --- in that case please keep the conversation respectful, task-oriented, short and on-topic, for ease of discussion) 😊 ... any harrassment/asking of personal information (such as phone no, home address) by non-professional people without a proper reason, shall lead to me blocking you.
 
+
+
 Thank you for visiting my profile. 💫
 Have a great day !! 😁✨
 
